@@ -1,2 +1,2 @@
-Hello! the creators of this client are: Notyourmilk And UalfTV (Client not finished)
+Hello! the creators of this client are: Notyourmilk, qqisdead and UalfTV (Client not released today)
 :)
